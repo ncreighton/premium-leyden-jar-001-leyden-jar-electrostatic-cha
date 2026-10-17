@@ -1,0 +1,2 @@
+# premium-leyden-jar-001-leyden-jar-electrostatic-cha
+Scattered notes and chaotic experiment logs killing your STEM teaching momentum? The Leyden Jar &amp; Electrostatic Charge Craft Lab template transforms your Notion workspace into a structured lab hub where every electrostatic experiment, material inventory, and student observation flows seamlessly.  This isn't just another template—it's a complete cra
